@@ -48,10 +48,9 @@ Share news, free render credits, educational materials and let comunity engaged
 
 
 STEP 4 - Get the word out
-Find related 3D Design/Animation/Rendering/Blender tech meet-ups, get to know the coordinators, spread the word about Qbik
-Reach out to local 3D Design guru and professionals from different industries (Animation, architecture, graphics) that will benefit from the Qbik’s solution.
+
 Write a guest post about your activities for the Vincoin Cash Medium  publication
-Create education materials in your language to spread understanding of Cloud Rendering and Qbik
+Create education materials in your language to spread understanding of Vincoin Cash
 Medium blog 
 Posts in Social media 
 Publications on news media
