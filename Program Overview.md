@@ -7,9 +7,8 @@
 STEP 1 - Apply
 
 Familiarize yourself with Vincoin Cash latest appearances and media profiles here.
-You have to be experienced 3D Creators (Can be any fields: design, animation, architecture, post effect)
-Fill out the application.
-👉 After following these steps, we will get in touch and schedule a meeting with one of LR core team members by videoconference to discuss your Ambassador application, and your planned strategies and tactics. 
+
+👉 After following these steps, we will get in touch and schedule a meeting with one of Vincoin Cash core team members by videoconference to discuss your Ambassador application, and your planned strategies and tactics. 
 
 
 
@@ -38,7 +37,7 @@ Sign up for the monthly Vincoin Cash newsletter to keep updated on our work!
 
 STEP 3 - Start a community
 Create a Facebook and/or Telegram group in your native language (Except English)
-Translate (if needed) and share the LR Ambassador program welcome/mission announcement from Marco Iodice with your group.
+Translate (if needed) and share the Vincoin Cash Ambassador program welcome/mission announcement with your group.
 Invite members of your network to the group.
 Connect to the Vincoin Cash Facebook Page
 Like, share and comment on Vincoin Cash Facebook page content in your group feed 
