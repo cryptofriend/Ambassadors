@@ -16,15 +16,14 @@ Fill out the application.
 
 STEP 2 - Connect with Vincoin Cash community channels
 
-Download and Install Qbik
-Create a profile Qbik and learn how the system works
 Follow Vincoin Cash on social media:
 [Telegram](https://t.me/vincoincash)
-[Twitter] (https://twitter.com/Vincoin_Cash)
-[Facebook] (https://www.facebook.com/vincoincash/)
-[Youtube] (https://www.youtube.com/channel/UCJqRWW07kX3m-I8IkRNUa2Q)
-[Instagram] (https://www.instagram.com/vincoincash/)
-[Medium] (https://medium.com/@vincoincash_eng)
+[Twitter](https://twitter.com/Vincoin_Cash)
+[Facebook](https://www.facebook.com/vincoincash/)
+[Youtube](https://www.youtube.com/channel/UCJqRWW07kX3m-I8IkRNUa2Q)
+[Instagram](https://www.instagram.com/vincoincash/)
+[Medium](https://medium.com/@vincoincash_eng)
+
 
 Sign up for the monthly Vincoin Cash newsletter to keep updated on our work!
 
